@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @b0nf1
-- 👀 I’m here to re-polish my coding skills
+- 👀 I’m here to polish my coding skills
 - 📫 How to reach me: figure it out ;-)
